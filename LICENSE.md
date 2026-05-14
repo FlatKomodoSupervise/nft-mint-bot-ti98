@@ -1,4 +1,4 @@
-# 
+# nft mint bot AI-powered Bot - liquidity-analysis and mint-detection is the best nft mint bot, featuring liquidity-analysis and mint-detection. Fast, smart, and optimized for NFT
 
 
 
